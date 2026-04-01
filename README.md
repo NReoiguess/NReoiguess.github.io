@@ -10,4 +10,4 @@ Twitter: https://x.com/N_Reo_Iguess
 
 YouTube: https://www.youtube.com/@N_Reo
 
-More about me: https://video.twimg.com/ext_tw_video/2003797816645419008/pu/vid/avc1/320x320/q9Mr0BQy4SYdp002.mp4?tag=12
+
