@@ -1,5 +1,7 @@
 <h1>My stuff.</h1>
 
+I like painting, writing, maplying games and i really love old tech. 
+
 Newgrounds: https://nreoiguess.newgrounds.com/
 
 Purely Human: https://www.purelyhuman.xyz/artists/N_Reo
