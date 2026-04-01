@@ -1,6 +1,6 @@
 <h1>My stuff.</h1>
 
-I like painting, writing, maplying games and i really love old tech. 
+I like painting, writing, playing games and i really love old tech. 
 
 Newgrounds: https://nreoiguess.newgrounds.com/
 
